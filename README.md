@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @chinhdoan
-- 👀 I’m interested in my crush
+- 👀 I’m interested in listening music
 - 🌱 I’m currently learning English
-- 💞️ I’m looking to collaborate on any teams
+- 💞️ I’m looking to collaborate on any teams to improve my future
 - 📫 How to reach me https://www.facebook.com/chinh.life.1998/
 
 <!---
