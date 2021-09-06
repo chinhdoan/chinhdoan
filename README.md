@@ -2,7 +2,7 @@
 - 👀 I’m interested in listening music
 - 🌱 I’m currently learning English
 - 💞️ I’m looking to collaborate on any teams to improve my future
-- 📫 How to reach me https://www.facebook.com/chinh.life.1998/
+- 📫 How to reach me https://www.facebook.com/chinhdoan16020002/
 
 <!---
 chinhdoan/chinhdoan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
