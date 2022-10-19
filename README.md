@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @chinhdoan
-- 👀 I’m interested in listening music
+- 👀 I’m interested in delicious food and delighted movies
 - 📫 How to reach me https://www.facebook.com/chinh.life.1998/
 
 <!---
