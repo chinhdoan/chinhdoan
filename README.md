@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @chinhdoan
 - 👀 I’m interested in delicious food and delighted movies
-- 📫 How to reach me https://www.facebook.com/chinh.life.1998/
+
 
 <!---
 chinhdoan/chinhdoan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
